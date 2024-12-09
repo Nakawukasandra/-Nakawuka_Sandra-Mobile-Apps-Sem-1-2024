@@ -1,3 +1,4 @@
+![exam 2](https://github.com/user-attachments/assets/fed555fe-2985-4538-a9c4-df1c5ad0645c)
 ![exam 1](https://github.com/user-attachments/assets/0894e5fd-6351-4af2-9d85-0837ea7d3576)
 # sem_1_end_exam
 
